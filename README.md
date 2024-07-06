@@ -4,10 +4,10 @@ avinashreddy1412@gmail.com
 
 LinkedIn® : www.linkedin.com/in/avinash-reddy-rangu 
 
-Phone : +919494361913 
+Phone : +919494361913 / +1-3802400369
 
 ## EXECUTIVE SUMMARY
-ML/CV/NLP Engineer with over 7 years of experience in handling and leading various kinds of projects in startups and bigger companies. An enthusiastic professional who specializes in productionizing end to end machine learning enabled platforms and solutions. Coordinated across business and technical teams and shipped products/services with high quality.
+ML/CV/NLP Engineer with over 10 years of experience in handling and leading various kinds of projects in startups and bigger companies. An enthusiastic professional who specializes in productionizing end to end machine learning enabled platforms and solutions. Coordinated across business and technical teams and shipped products/services with high quality.
 
 ## FUNCTIONAL EXPERTISE
 
